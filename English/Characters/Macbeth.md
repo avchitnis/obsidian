@@ -1,4 +1,4 @@
-[[Macbeth]] is a warrior and the Thane of Glamis. His ambitions lead him to betray and murder his king to take the throne of Scotland. In the play, [[Macbeth]]:
+ddd[[Macbeth]] is a warrior and the Thane of Glamis. His ambitions lead him to betray and murder his king to take the throne of Scotland. In the play, [[Macbeth]]:
 
 - defeats the armies of the rebellion against King [[Duncan]] ([[1.2]]).
 
