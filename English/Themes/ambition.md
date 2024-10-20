@@ -4,4 +4,6 @@
 
 - Although the influence of both [[Lady Macbeth]] and the [[witches]] is strong, their power over [[Macbeth]] is only possible because his [[ambition]] is already there.
 
-- On first meeting [[Macbeth]] we find him startled and fearful of something that sounds **'so fair**
+- On first meeting [[Macbeth]] we find him startled and fearful of something that sounds **'so fair'** ([[1.3]]). This seems to be because his [[ambition]] has already triggered treasonous thoughts.
+
+- [[Macbeth]], then, is a hero but the one who is fatally undermined by his [[ambition]]. The consequences of this [[ambition]] form the fabric of the play.
