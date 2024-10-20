@@ -1,3 +1,5 @@
+# Role in the play
+
 [[Banquo]] is [[Macbeth]]'s honourable and loyal friend. He resists the temptation presented by the [[witches]] and is later murdered by [[Macbeth]]. In the play, [[Banquo]]:
 
 - helps defeat the enemies of King [[Duncan]] in battle ([[1.2]]).

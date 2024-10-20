@@ -1,3 +1,5 @@
+# Role in the play
+
 [[Duncan]] is the King of Scotland. He is well liked and respected by his people. He is known for being a just and honest ruler. [[Macbeth]] and his wife murder him in his sleep so that [[Macbeth]] can take the crown. In the play, [[Duncan]]:
 
 - listens to reports of [[Macbeth]]'s actions in battle and praises his courage ([[1.2]]).
