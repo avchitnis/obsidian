@@ -5,5 +5,6 @@
 
 # Subjects covered
 - English Literature
+    - Macbeth 
 
 Reviewed as of 19/10/2024
