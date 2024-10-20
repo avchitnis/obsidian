@@ -8,4 +8,6 @@ The theme of [[kingship]] is important and the play presents examples of good an
 
 - When [[Duncan]] is fair, [[Macbeth]] is tyrannical and becomes murderous. His rule is a brutal dictatorship.
 
-- Edward is King of England and, in contrast to [[Macbeth]], is portrayed as a good king, well - liked by his peop
+- Edward is King of England and, in contrast to [[Macbeth]], is portrayed as a good king, well - liked by his people.
+
+- [[Malcolm]], [[Duncan]]'s son, is crowned King at the end of the play.
