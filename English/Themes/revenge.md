@@ -6,4 +6,4 @@
 
 - Later, when [[Macbeth]] summons the [[witches]], the ghost of [[Banquo]] **'smiles'** ([[4.1]]), implying that his [[revenge]] is complete and that his descendants will be kings.
 
-Perhaps most importantly of all in terms of the play 
+Perhaps most importantly of all in terms of the play is [[Macduff]]'s vengeance. By murdering [[Macduff]]'s family, [[Macbeth]] sets against himself the one man who can defeat him. [[Macduff]]'s mission for [[revenge]] is entirely personal - he promises that [[Macbeth]] escaping from him is as likely as heaven forgiving him ([[4.3]]).
