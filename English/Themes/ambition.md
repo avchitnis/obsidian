@@ -1,0 +1,1 @@
+[[ambition]] is the fundamental theme and the driving force of [[Macbeth]]'s life. It is a
