@@ -5,6 +5,7 @@
 
 # Subjects covered
 - English Literature
-    - Macbeth 
+    - Macbeth
+    - Jekyll & Hyde
 
 Reviewed as of 19/10/2024
